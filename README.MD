@@ -1,1 +1,2 @@
 hi hello welcome to some garbage
+hires chicken pics for the panels stolen shamelessly from https://www.nationalgeographic.com/photography/proof/2018/05/chickens-portrait-pictures-animals/ because the assets from the game are hard to find. will be replaced if i can locate good scans.
